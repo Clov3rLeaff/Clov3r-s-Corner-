@@ -1,4 +1,31 @@
 # Clov3r-s-Corner-
 Welcome to my page &lt;3
-୨୧ ⏔⏔⏔♡⏔⏔⏔ ୨୧୨୧ ⏔⏔⏔♡⏔⏔⏔ ୨୧୨୧ ⏔⏔⏔♡⏔⏔⏔ ୨୧୨୧ ⏔⏔⏔♡⏔⏔⏔ ୨୧
-<img width="1093" height="745" alt="image" src="https://github.com/user-attachments/assets/822a5e0c-76b6-4324-b3ac-212ab95740e2" />
+ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـﮩ٨ـﮩﮩ٨ـ♡ﮩ٨
+<img width="1093" height="745" alt="image" src="https://github.com/user-attachments/assets/ac7a5698-ffc7-4647-b03a-0d9a47139f4d" />
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+
+𝔸𝕓𝕠𝕦𝕥 𝕄𝕖!!
+
+｡ﾟ•  ｡ﾟ17 yrs 10/21/08｡ﾟ•  ｡ﾟ
+
+⋆⊱⋆Religion: Buddhist⋆⊰⋆
+
+ᴘᴏʟɪᴛɪᴄᴀʟ ᴠɪᴇᴡ: Leftist 
+
+𐙚 𝕀𝕗 𝕪𝕠𝕦 𝕒𝕣𝕖 𝕓𝕖𝕝𝕠𝕨 𝟙𝟜 𝔻ℕ𝕀 𐙚
+
+｡ﾟ•┈꒰ა ♡ ໒꒱┈•  ｡ﾟ｡ﾟ•┈꒰ა ♡ ໒꒱┈•  ｡ﾟ｡ﾟ•┈꒰ა ♡ ໒꒱┈•  ｡ﾟ｡ﾟ•┈꒰ა ♡ ໒꒱┈•  ｡ﾟ｡ﾟ•┈꒰ა ♡ ໒꒱┈•  ｡ﾟ｡ﾟ•┈꒰ა ♡ ໒꒱┈•  ｡ﾟ｡ﾟ•┈꒰ა ♡ ໒꒱┈•  ｡ﾟ
+
+♡𝗬𝗨𝗠𝗘𝗦𝗛𝗜𝗣𝗦♡
+
+⋆.𐙚 ̊ 𝙎𝙝𝙖𝙧𝙞𝙣𝙜 ⋆.𐙚 ̊
+
+John Doe
+
+Falin Touden
+
+┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
+
+ＦＹＩ
+
+I am uncomfortable with certain religious ideologies, specifically Christian ideology. So please do not try and “convince” me into thinking a certain way about a religion.
