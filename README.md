@@ -24,6 +24,6 @@ Falin Touden
 
 ┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
 
-ＦＹＩ
+୨୧ ⏔⏔⏔♡⏔⏔⏔ ୨୧୨୧ ⏔⏔⏔♡⏔⏔⏔ ୨୧୨୧ ⏔⏔⏔♡⏔⏔⏔ ୨୧୨୧ ⏔⏔⏔♡⏔⏔⏔ ୨୧୨୧ ⏔⏔⏔♡⏔⏔⏔ ୨୧୨୧ ⏔⏔⏔♡⏔⏔⏔ ୨୧
 
-I am uncomfortable with certain religious ideologies, specifically Christian ideology. So please do not try and “convince” me into thinking a certain way about a religion.
+<img width="1195" height="246" alt="image" src="https://github.com/user-attachments/assets/8f811908-2cd1-471f-a7cc-28dd54671dc5" />
